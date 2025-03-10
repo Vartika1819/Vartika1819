@@ -1,5 +1,5 @@
 ## Hi there 👋
-I am Vartika Singh 
+I am Vartika Singh   
 Sophomore at SRMIST
 
 - 🔭 I’m currently working on ...
