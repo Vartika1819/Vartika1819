@@ -1,4 +1,4 @@
- ## Hi there 👋
+## Hi there 👋
 I am Vartika Singh   
 Sophomore at SRMIST  
   
